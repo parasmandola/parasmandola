@@ -7,7 +7,7 @@
 
 - 💬 Ask me about *DSA & Full Stack*
 
-- 📫 How to reach me *parasmandola73@gmail.com
+- 📫 How to reach me *parasmandola73@gmail.com*
 
 - ⚡ Fun fact *I'm Serious*
   
